@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PayalKahate
-- 👀 I’m interested to working with the top MNC Company.
+- 👀 I’m interested to working with the MNC's.
 - 🌱 I’m currently learning Java Full Stack Program.
 - 💞️ I’m looking to upgrade my skills through work on various projects.
 - 😄 Pronouns: She/Her...
